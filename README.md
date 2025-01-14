@@ -1,0 +1,1 @@
+Hart Films is a visionary production company founded by Benjamin Hart. Known for his compelling performances and innovative projects, Benjamin brings passion to every role. Explore our site to learn more about his journey and our creative endeavors.
